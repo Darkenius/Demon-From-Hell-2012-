@@ -1,5 +1,5 @@
 # Demon-From-Hell-2012-
-Second music album made in 2012.
+Second music instrumental album made in 2012.
 
 Genre: Electronic Metal
 
